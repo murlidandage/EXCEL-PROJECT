@@ -1,2 +1,0 @@
-# DATA ANALYST 
-EXCEL PROJECTS        
